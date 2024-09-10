@@ -34,4 +34,4 @@
 
 - **LinkedIn:** [Edilson Freire](https://www.linkedin.com/in/edilson-freire-37a06ab1/)
 - **Email:** analistadesistemasedilson@gmail.com
-- **Linkdin:** [Edilson Freire](https://www.linkedin.com/in/edilson-freire-37a06ab1/)
+- **Linkdin:** [Edilson Freire](https://www.linkedin.com/in/edilson-freire/)
